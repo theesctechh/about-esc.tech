@@ -1,2 +1,3 @@
-# about-esc.tech
-about me
+# about esc.tech
+nothing added
+just dreaming
